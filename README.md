@@ -1,7 +1,7 @@
 3k- 👋 Hi, I’m @reteferh
 - 👀 I’m interested in ... 52
 - 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...5464533485251csd959
+- 💞️ I’m looking to collaborate on ...5464533485251csd95925
 - 📫 How to reach me ...uuiiu78wef9665126341845
 - 😄 Pronouns: ...456969666966uyzxcfbg
 - ⚡ Fun fact: ...dsadsgreeee66ewwe
