@@ -3,7 +3,7 @@ nvcbcv83k- 👋 Hi, I’m @reteferh
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...5464533485251csd95925vxcxccxxcvcxvhtrhtr87687bnbm
 - 📫 How to reach me ...iohdgdgh
-- 😄 Pronouns: ...456969666966uyzxcfbgdrggdrbgf
+- 😄 Pronouns: ...456969666966uyzxcfbgdrggdrbgfedwdew
 - ⚡ Fun fact: ...dsadsgreeee66ewwe4185xzcbgtr26.
 fds5bgg53453
 <!---erersdfgjltyfbcxsdf62fghf
