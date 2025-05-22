@@ -2,7 +2,7 @@ yjrrrrggnvcbcv83k- 👋 Hi, I’m @reteferh
 - 👀 I’m interested in ... 52
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...5464533485251csd95925vxcxceecxxcvcxvhtrhtr87687bnbmbvbvvb5vbnvcxxccx cvxcgfh
-- 📫 How to reach me ...iohdgdgh23ggmhgnbqqthythyhxccxcxvxcxcbbcxyjyrtrreererrtytyty
+- 📫 How to reach me ...iohdgdgh23ggmhgnbqqthythyhxccxcxvxcxcbbcxyjyrtrreererrtytytyghjjhggjh
 - 😄 Pronouns: ...456969666966uyzxcfbgdrggdrbgfedwdewrfdrthrthhtr
 - ⚡ Fun fact: ...dsadsgreeee66ewwe4185xzcbgtr26.jjhmfghfhgnhbvhgrgrr
 fds5bgg53453dvdsssvcccvbcvbfghhgfhhfgg
