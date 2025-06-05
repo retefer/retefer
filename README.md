@@ -3,7 +3,7 @@ ryvbnyjrrrrggnvcbcv83k- 👋 Hi, I’m @reteferhfeddssd
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...5464533485251csd95925vxcxceecxxcvcxvhtrhtr87687bnbmbvbvvb5vbnvcxxccx cvxcgfhcxz
 - 📫 How to reach me ...iohdgdgh23ggmhgnbqqthythyhxccxcxvxcxcbbcxyjyrtrreererrtytytyghjjhggjhrytyytrthvbnvbnvnvbn
-- 😄 Pronouns: ...456969666966uyzxcfbgdrggdrbgfedwdewrfdrthrthhtrgrt
+- 😄 Pronouns: ...456969666966uyzxcfbgdrggdrbgfedwdewrfdrthrthhtrgrtmkuju
 - ⚡ Fun fact: ...dsadsgreeee66ewwe4185xzcbgtr26.jjhmfghfhgnhbvhgrgrrhtrgtr
 fds5bgg53453dvdsssvcccvbcvbfghhgfhhfggghhhggg
 <!---erersdfgjltyfbcxsdf62fghffgh5852ryyryryrwtesfd44545445
